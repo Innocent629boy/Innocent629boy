@@ -1,4 +1,4 @@
-Hi developer, how are you 💖🎶🚀🧑‍🚀
+hey guys 👋, what's up 🥰
 
 <!--
 **Innocent629boy/Innocent629boy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
